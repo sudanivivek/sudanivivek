@@ -1,5 +1,4 @@
 **<h2>Hi, I’m sudani vivek👋</h2>**
-**<h3>Education</h3>** 📚
    
  <h3>Skills 🚀</h3>
 
