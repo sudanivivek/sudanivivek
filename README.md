@@ -1,6 +1,5 @@
 **<h2>Hi, I’m sudani vivek👋</h2>**
 **<h3>Education</h3>** 📚
-   B.C.A.:- Bachelor Computer Application IN president institute of computer application (2022-present)
    
  <h3>Skills 🚀</h3>
 
